@@ -1,4 +1,4 @@
-
+Download king legacy Scripts professional for king legacy, the best script available, featuring no clip and fly. This powerful tool ensures you have the upper hand in every match,
 
 
 
